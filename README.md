@@ -165,7 +165,7 @@ I am currently deepening expertise in:
 # Contact
 
  Email: adeshina413@gmail.com  
- LinkedIn: ([Add your LinkedIn URL](https://www.linkedin.com/in/jamesadeshina/))  
+ LinkedIn: ([Jamesadeshina](https://www.linkedin.com/in/jamesadeshina/))  
 
 ---
 
